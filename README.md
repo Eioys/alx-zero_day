@@ -1,1 +1,1 @@
-work hard work smart
+so far so good

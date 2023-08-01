@@ -1,1 +1,1 @@
-My first readme
+work hard work smart
